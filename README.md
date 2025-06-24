@@ -4,4 +4,4 @@
 - HunterxHunter : Hisoka
 - Assassination Classroom: Nagisa
 -
--
+-One-piece: Chopper
