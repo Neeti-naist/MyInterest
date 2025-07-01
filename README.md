@@ -11,7 +11,7 @@
 - Italy to explore its history and cuisine.
 - IceIsland to see aurora.
 - Gartang Gali, Uttarakhand, India.
+- Nachi Falls, Wakayama, Japan.
 - Go to Hokkaido to see the snow
 - Machu Picchu
 - New Zealand to see kiwi.
-
